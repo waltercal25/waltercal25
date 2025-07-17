@@ -49,7 +49,7 @@ I’m building skills in:
 ## 📫 How to Reach Me
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/walter-calderon-059595193/)
-- ✉️ Email: your.email@example.com
+- ✉️ Email: waltercal25@gmail.com
 
 ---
 
